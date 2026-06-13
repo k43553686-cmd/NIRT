@@ -1,2 +1,2 @@
-# HOD-Madharchod
+# Sant
 Nirt Student portol 
